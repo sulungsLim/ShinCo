@@ -1,2 +1,2 @@
-# EG
-Endless Gold
+# ShinCo
+
